@@ -21,7 +21,7 @@ Social practice and volunteer records during college
 
 ### 1、2023.03.29 反诈达人秀
 3月29日，由省反诈联席办、省公安厅新闻中心、杭州市反诈联席办、杭州市公安局警察公共关系处联合主办的“平安亚运 全民反诈——反诈达人秀（杭州）”公益活动在杭举办。我院2022年度浙江省大学生多媒体省级A类竞赛获奖作品《反诈无国界》（指导老师：宋蔚，陈婧赟），《黎明曙光》（指导老师：唐伟，陈婧赟）主创学生代表——数字媒体技术专业的中外学生董一孝、Daniel （巴拿马）受邀参加现场访谈、展示，受到了与会人员的认可和鼓励。<br/>
-<img src="https://github.com/user-attachments/assets/6ac67106-2a46-4474-90e6-caa05f353b13" alt="志愿服务5" width="300"/> <br/>
+<img src="https://github.com/user-attachments/assets/6ac67106-2a46-4474-90e6-caa05f353b13" alt="志愿服务5" width="300"/> 
 <img src="https://github.com/user-attachments/assets/c6a1f77a-210f-4b64-8c43-85e8d1aab3f5" alt="志愿服务6" width="300"/> <br/>
 相关链接：https://mp.weixin.qq.com/s/txKcSReGuVR5l6Q0qdpaFA
 
